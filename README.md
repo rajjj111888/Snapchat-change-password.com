@@ -1,1 +1,1 @@
-# Snapchat-change-password.com
+# Snapchat-Change-Password.com
